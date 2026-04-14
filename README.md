@@ -28,6 +28,6 @@
 
 ###
 
-<h6 align="left">Idk man i just put random <br>My Wife : Tsumiki Miniwa</h6>
+<h6 align="left">Idk man i just put random stuff <br>My Wife : Tsumiki Miniwa</h6>
 
 ###
